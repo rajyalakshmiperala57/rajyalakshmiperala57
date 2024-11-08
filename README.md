@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Rajyalakshmi!
+# 👋 Hi, I'm Rajyalakshmi perala!
 
 ### 🎓 MCA graduate| Aspiring Developer | Tech Enthusiast
 
