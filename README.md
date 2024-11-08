@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Rajyalakshmi!
 
-### 🎓 MCA Student | Aspiring Developer | Tech Enthusiast
+### 🎓 MCA graduate| Aspiring Developer | Tech Enthusiast
 
 I have completed my Master of Computer Applications (MCA) and love working on software development projects. My GitHub showcases some of my projects, skills, and learning journey in tech.
 
