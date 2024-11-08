@@ -1,4 +1,4 @@
-# 👋 Hi, I'm ʀᴀᴊʏᴀʟᴀᴋꜱʜᴍɪ ᴘᴇʀᴀʟᴀ!
+# 👋 Hi, I'm Rajyalakshmi 
 
 
 ### 🎓 MCA graduate| Aspiring Developer | Tech Enthusiast
